@@ -1,2 +1,0 @@
-# krislinzhao.github.io
-Blog
